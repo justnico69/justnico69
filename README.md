@@ -1,5 +1,5 @@
 # 💫 About Me:
-Curious and Passionate when it comes to Techh 👀
+curious and passionate when it comes to Techh techy 👀
 
 
 ## 🌐 Socials:
